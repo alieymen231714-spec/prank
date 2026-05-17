@@ -1,1 +1,1 @@
-my project do not sole its for windows i will do andriod too 
+my project do not stole its for windows i will do andriod too 
